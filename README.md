@@ -1,3 +1,3 @@
-### Hi y'all 👀
+### Hi y'all
 
-:shipit: I like to make stuff.
+I like to make stuff!
